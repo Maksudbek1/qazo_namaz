@@ -1,0 +1,1 @@
+# qazo_namaz
